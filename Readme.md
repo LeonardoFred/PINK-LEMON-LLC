@@ -17,6 +17,11 @@ Our contract will be terminated at that point by the freelancing platform. It wi
 
 So, to avoid this problem, I believe we should communicate over another platform, such as Skype.
 
+
+Hi Mohamed,
+I prefer to use google meet. 
+My email is leonardo.fredduzzi@gmail.com and we talk on that platform.
+
 If you agree, please join *https://join.skype.com/invite/xo5EPn7knKFx* or search **live:.cid.55ed0bb104b24bb**
 
 Thank you.
